@@ -10,4 +10,3 @@
 - 👀 I’m interested in electronics, digital design, embedded and software programming
 - 📫 How to reach me: @omarelsherif35@gmail.com
 - ⚡ Fun fact: Humans are just one of the estimated 8.7 million species on Earth.
--->
